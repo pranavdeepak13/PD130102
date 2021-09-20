@@ -8,7 +8,9 @@
 
 > Phone: Why would I give my number to you 😆
 
-### I'm Tech Lover and very much passionate about the Sciences 🔬
+> Discord: @PD✌#5243
+
+### I'm a Tech Lover and I'm very much passionate about the Sciences 🔬
 
 #### Learning to Code in a variety of Languages
 <p align="left">
