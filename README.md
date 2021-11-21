@@ -4,7 +4,7 @@
 <h3>I'm just an average Indian Computer Science Enginnering Student</h3>
 <h4>Contact Info:</h4>
  
-> Mail: pranavdeepak13@gmal.com
+> Mail: Why would I give my Mail Id to you 😆
 
 > Phone: Why would I give my number to you 😆
 
